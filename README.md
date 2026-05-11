@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RARD910721HVZYMN00
+RARD910721HVZYMN00
